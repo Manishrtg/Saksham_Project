@@ -1,1 +1,1 @@
-# IIMB_NGO_project
+# IIMB_School Rejuvenation Project 
